@@ -1,2 +1,2 @@
 > [!NOTE]
-> This panel has been leaked due to owners stupidity 😂
+> This panel was leaked due to the owner's stupidity. 😂
